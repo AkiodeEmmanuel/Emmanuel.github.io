@@ -1,3 +1,7 @@
+**Email:** [Akifem.emma@gmail.com](mailto:Akifem.emma@gmail.com)  
+**Mobile:** +2348169221496  
+**LinkedIn:** [Visit my LinkedIn profile](https://www.linkedin.com/public-profile/settings?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact-info%3BTwJ68siFTQe0c5mozfExjA%3D%3D)
+
 ## Education
 **University of Lagos, Akoka, Nigeria**  
 *Bachelor of Surveying & Geoinformatics* (CGPA: 4.29/5.00, Second Class Upper Division)  

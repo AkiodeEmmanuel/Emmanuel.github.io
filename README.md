@@ -1,5 +1,3 @@
----
-
 ## Education
 **University of Lagos, Akoka, Nigeria**  
 *Bachelor of Surveying & Geoinformatics* (CGPA: 4.29/5.00, Second Class Upper Division)  

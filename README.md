@@ -69,7 +69,7 @@ _September 2020 – August 2021_
 - Designed analytical tools in  Excel for field data computations.  
 
 ### **Costa Del Sol Limited** (Survey Technologist)  
-_November 2019 – April 2021_  
+_November 2019 – July 2020_  
 - Performed geospatial analysis on drone imagery for infrastructure design.  
 - Conducted survey operations using GNSS receivers and Total Stations.  
 - Delivered detailed surveys and orthophotos for topographic analysis.

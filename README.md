@@ -88,7 +88,7 @@ _November 2019 – April 2021_
 ---
 
 ## Contact
-Feel free to reach out via email or LinkedIn for collaboration opportunities or professional inquiries.
-Check out my Porfolio so see Most of my recent Project
-Email: Akifem.Emma@gmail.com
+- Feel free to reach out via email or LinkedIn for collaboration opportunities or professional inquiries.
+- Check out my Porfolio to see most of my recent Project
+
 
